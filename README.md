@@ -1,4 +1,4 @@
-# 👋 Ramandeep Singh | Founder – iClicksTech
+# 👋 Ramandeep Singh | BDM – iClicksTech
 
 Building powerful, scalable, and visually stunning websites & mobile apps for global businesses.
 
